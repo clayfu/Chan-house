@@ -2,7 +2,7 @@
 
 ## Mission
 
-The purpose of "Chan House" is to use this modern online platform to let the worldwide Chinese with fate and wisdom understand that the Sudden Enlightenment Chan Dharma is an inconceivable “metaphysical science of the mind” that every truly wise practitioner must personally realize or enlighten to. Because the Great Collection Sutra states: "The Tathagata is able to awaken to such Dharma-realm; so is called a Buddha."  The Laṅkāvatāra Sūtra says: "What all Buddhas have realized, I will also realize."  And Master Fa Chan said, "In this absolute Essence-nature, spirit and matter are one, ... From the perspective of absolute Essence-nature, all in the mundane and transmundane world are merely a kind of phenomena and functions manifesting according to conditions from one Essence-nature.  Therefore, when a practitioner achieves great thorough enlightenment, the self’s body and mind simultaneously dissolves into the whole Essence, Form, and Function - that is to say, at this moment there is only Essence, Form, and Function, and without you, me, or him." But only modern wise people will believe in and self-realize this Dharma-realm which is the origin of the universe and life—the world behind the quantum world discovered by scientists today.
+The purpose of "Chan House" is to use this modern online platform to let the worldwide Chinese with fate and wisdom understand: the Sudden Enlightenment Chan Dharma is an inconceivable “metaphysical science of the mind” that every truly wise practitioner must personally realize or enlighten to. Because the Great Collection Sutra states: "The Tathagata is able to awaken to such Dharma-realm; so is called a Buddha."  The Laṅkāvatāra Sūtra says: "What all Buddhas have realized, I will also realize."  And Master Fa Chan said, "In this absolute Essence-nature, spirit and matter are one, ... From the perspective of absolute Essence-nature, all in the mundane and transmundane world are merely a kind of phenomena and functions manifesting according to conditions from one Essence-nature.  Therefore, when a practitioner achieves great thorough enlightenment, the self’s body and mind simultaneously dissolves into the whole Essence, Form, and Function - that is to say, at this moment there is only Essence, Form, and Function, and without you, me, or him." But only modern wise people will believe in and self-realize this Dharma-realm which is the origin of the universe and life—the world behind the quantum world discovered by scientists today.
 
 Visitors are welcome to leave comments, exchange ideas, and share.
 
@@ -58,7 +58,7 @@ Please visit the **[Discussions](https://github.com/clayfu/Chan-books/discussion
 
 > "I believe that the scriptures and Dharma sayings quoted in this Chan book can help Westerners understand the original face of supreme Buddhism and Chan, and awaken the wise people in Chinese communities around the world to re-pickup this nearly lost treasure from the Tang and Song dynasties."
 
-Master Fazan:  
+Master Fa Chan:  
 "Don't meditate Chan and don't chant Buddha's name, why removing sores and warts in good meat? Even knowing such kind of things should be stop. It is neither mind nor Buddha nor emptiness nor existence."
 
 **May those who see this be filled with joy, and may those who hear this obtain liberation. Amitabha Buddha.**
