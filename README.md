@@ -2,7 +2,7 @@
 
 ## Mission
 
-The purpose of "Chan House" is to use this modern online platform to let wise Chinese readers around the world understand: Sudden-teaching Chan Dharma is a profound "metaphysical science of the mind" that true practitioners must personally realize. As the *Mahāvaipulya Mahāsamghāta Sūtra* says: "The Tathāgata can awaken to such a Dharma realm, therefore he is called Buddha." And as the *Laṅkāvatāra Sūtra* says: "What all Buddhas have realized, I also realize." This Dharma realm, the source of all life in the universe, is the very reality behind the quantum world discovered by modern scientists.
+The purpose of "Chan House" is to use this modern online platform to let the worldwide Chinese with fate and wisdom understand that the Sudden Enlightenment Chan Dharma is an inconceivable “metaphysical science of the mind” that every truly wise practitioner must personally realize or enlighten to. Because the Great Collection Sutra states: "The Tathagata is able to awaken to such Dharma-realm; so is called a Buddha."  The Laṅkāvatāra Sūtra says: "What all Buddhas have realized, I will also realize."  And Master Fa Chan said, "In this absolute Essence-nature, spirit and matter are one, ... From the perspective of absolute Essence-nature, all in the mundane and transmundane world are merely a kind of phenomena and functions manifesting according to conditions from one Essence-nature.  Therefore, when a practitioner achieves great thorough enlightenment, the self’s body and mind simultaneously dissolves into the whole Essence, Form, and Function - that is to say, at this moment there is only Essence, Form, and Function, and without you, me, or him." But only modern wise people will believe in and self-realize this Dharma-realm which is the origin of the universe and life—the world behind the quantum world discovered by scientists today.
 
 Visitors are welcome to leave comments, exchange ideas, and share.
 
@@ -12,17 +12,14 @@ Visitors are welcome to leave comments, exchange ideas, and share.
 
 ### *Chan: The Inconceivable Metaphysical Science of the Mind — The Path to Buddhahood in One Lifetime* (Traditional, Simplified, English, Bilingual editions)
 
-The most important message of this book is what Dharma Master Fazan said:  
-"Seeing one’s true nature and becoming Buddha is the most basic, most important, and ultimate requirement of learning Buddhism."  
-"To practice Chan, it is enough to have the thought of wanting to see one’s nature." (*The Path to Buddhahood*)  
-"Our purpose in cultivation is nothing other than liberation from birth and death."  
-"Since birth inevitably leads to death, what meaning does life have? It should not be merely for survival, but for a higher aspiration… that higher aspiration is to resolve the problem of birth and death."  
+The most important message this book wants to convey to readers is what Master Fa Chan said: "Seeing the nature to become Buddha is the most basic, most important, and ultimate requirement of studying Buddhism." "In Chan meditation, having the thought of seeing the nature is enough." (The Path of becoming Buddha) "The purpose of our practice is nothing more than to liberate birth and death."  "Humans are destined to die at birth. What is the meaning of a person's whole life? It shouldn't just be about making a living; there should be higher aspirations... The higher aspiration is to solve the problem of birth and death."  
 
-To resolve birth and death is to awaken, like the Buddha, from the great dream of samsaric life. As the *Mahāratnakūṭa Dhāraṇī Sūtra* says: "One who awakens to birth and death is called awakened, therefore called Buddha."  
+The key to resolving the problem of birth and death lies in one's own Prajna wisdom. That is, he or she must understand and believe that the present universe and life of which have the samsaric birth and death are merely an illusion, like a dream. This is what the Buddha said in the Maha-prajna-paramita Sutra: "Good man! The Buddha said that all dharmas are like illusions and dreams. If there are sentient beings who truly understand this, ...then they will know the Reality** of all dharmas spoken of by the Buddha." And it is also what the Great Torch Dharani Sutra says: "The Buddha said: 'Brahma! All sentient beings are asleep in the long night. If even one of them awakens, he will know that all sentient beings are asleep, deeply asleep. Now that I have obtained such awakening, how can I enable all sentient beings to break the sleep and obtain this awakening as well? Brahma, this is the first meaning of awakening, so is called Buddha.
+  
+Therefore, it's not that birth and death cannot be resolved, but whether you are willing to understand, believe, and awaken? The Complete Works of Master Tai Xu states: "All sentient beings have the potential to become Buddhas; therefore, all sentient beings are future Buddhas." May you also begin to understand and believe! It's all about a single thought; especially one's own wondrous causes and conditions or karmic conditions, which have spanned countless lifetimes!!
+**Reality” refers to the world behind the quantum world.
 
-This book is written for the rare few who sincerely wish to explore the truth of existence and transcend birth and death.
-
-This is a **free Dharma e-book**, released under Creative Commons license. Download, print, and share freely — boundless merit.
+This book is a **free ebook**, licensed under Creative Commons (CC). Downloading, reprinting, and distributing it are welcome; the merit is immeasurable.
 
 - **Author**: Jing San  
 - **ISBN**: 978-626-01-6157-6 (EPUB)  
@@ -57,21 +54,20 @@ This is a **free Dharma e-book**, released under Creative Commons license. Downl
 
 ---
 
-## Listen to Dharma Talks and Join Discussions
+## Read important scriptures and Dharma sayings of Master Yue Xi and Master Fa Chan (Faith and Refuge in Buddhism; Wisdom in Buddhism; What Is a Buddha? The Path to become Buddha; What Is Chan or Chan Meditation? Emptiness, Self, and Non-Self in Buddhism; Transforming Consciousness into Wisdom; The Path to Liberation from Birth and Death; Karma in Buddhism; The Spirit and Characteristics of Chan… etc.), as well as the exchange and discussion area.
 
-Please visit the **[Discussions](https://github.com/clayfu/Chan-books/discussions)** section to leave comments, exchange ideas, or share this "Chan House" website — (https://github.com/clayfu/Chan-books).
+Please visit the **[Discussions](https://github.com/clayfu/Chan-books/discussions)** section to leave comments, exchange ideas, or share this "Chan House" website — Chinese: ( https://github.com/clayfu/Chan-books ) ; English: ( https://github.com/clayfu/Chan-house ).
 
 ---
 
 ### 🙏 Conclusion
 
-> "I believe that the scriptures and Dharma words quoted in this Chan book can help Westerners understand the true essence of supreme Buddhism and Chan, and awaken wise people in the global Chinese community to rediscover the precious treasures of the Tang and Song dynasties."
+> "I believe that the scriptures and Dharma sayings quoted in this Chan book can help Westerners understand the original face of supreme Buddhism and Chan, and awaken the wise people in Chinese communities around the world to re-pickup this nearly lost treasure from the Tang and Song dynasties."
 
 Master Fazan:  
-"Not practicing Chan, not reciting Buddha — why cut good flesh to carve a sore?  
-Knowing this matter, one should rest — neither mind, nor Buddha, nor emptiness, nor existence."
+"Don't meditate Chan and don't chant Buddha's name, why removing sores and warts in good meat? Even knowing such kind of things should be stop. It is neither mind nor Buddha nor emptiness nor existence."
 
-**May those who see rejoice, may those who hear be liberated. Amitābha.**
+**May those who see this be filled with joy, and may those who hear this obtain liberation. Amitabha Buddha.**
 
 ---
 
