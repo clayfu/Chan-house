@@ -10,7 +10,7 @@ Visitors are welcome to leave comments, exchange ideas, and share.
 
 ## Author’s Work
 
-### *Chan: The Inconceivable Metaphysical Science of the Mind — The Path to Buddhahood in One Lifetime* (Traditional, Simplified, English, Bilingual editions)
+### *Chan: The Inconceivable Metaphysical Science of the Mind — The Path to become Buddha in One Lifetime* (Traditional, Simplified, English, Bilingual editions)
 
 The most important message this book wants to convey to readers is what Master Fa Chan said: "Seeing the nature to become Buddha is the most basic, most important, and ultimate requirement of studying Buddhism." "In Chan meditation, having the thought of seeing the nature is enough." (The Path of becoming Buddha) "The purpose of our practice is nothing more than to liberate birth and death."  "Humans are destined to die at birth. What is the meaning of a person's whole life? It shouldn't just be about making a living; there should be higher aspirations... The higher aspiration is to solve the problem of birth and death."  
 
