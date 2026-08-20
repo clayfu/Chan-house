@@ -38,12 +38,6 @@ This book is a **free ebook**, licensed under Creative Commons (CC). Downloading
 
 ---
 
-**How to Download**:  
-- **Mobile**: Long press the link above, choose "Open," then select browser or reader to download.  
-- **Computer**: Copy the link above, paste into a new browser tab, and the file will download automatically.
-
----
-
 ## Patriarchal Dharma Treasures
 
 - *The Platform Sutra of the Sixth Patriarch* (CBETA Taishō Tripiṭaka Vol. 48, No. 2008, compiled by Zongbao): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/The-Platform-Sutra-of-the-Sixth-Patriarch.epub)  
