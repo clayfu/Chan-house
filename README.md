@@ -1,4 +1,4 @@
-# 🏠 Chan House | Chan Books
+# 🏠 Chan House 
 
 ## Mission
 
