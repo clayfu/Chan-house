@@ -75,5 +75,5 @@ Master Fa Chan:
 Total visits:  
 ![Visitor Count](https://hits.sh/github.com/clayfu/Chan-house.svg?style=for-the-badge&label=Visitors&color=blue)
 
-*Last updated: Aug. 2026*
+*Last updated: Sep. 2026*
 
