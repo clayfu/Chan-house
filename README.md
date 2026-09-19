@@ -41,14 +41,14 @@ This book is a **free ebook**, licensed under Creative Commons (CC). Downloading
 - English / Bilingual edition: (to be completed)
 
 ---
-
+ 
 ## Patriarchal Dharma Treasures
 
-- *The Platform Sutra of the Sixth Patriarch* (CBETA Taishō Tripiṭaka Vol. 48, No. 2008, compiled by Zongbao): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/The-Platform-Sutra-of-the-Sixth-Patriarch.epub) Chinese 
-- *Faith in Mind* (CBETA Taishō Tripiṭaka Vol. 48, No. 2010): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/The-Faith-Inscription.epub)  Chinese 
-- *Song of Realizing the Dao by Yongjia* (CBETA Taishō Tripiṭaka Vol. 48, No. 2014): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/Yongjia's-Song-of-Realizing-the-Dao.epub)  Chinese 
-- *Essential Mind-Transmission Dharmas of Chan Master Duanji of Huangbo Mountain* (CBETA Taishō Tripiṭaka Vol. 48, No. 2012A): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/The%20Mind-Transmission-Dharmas-Essential-of-Chan-Master-Duanji-of-Huangbo-Mountain.epub)  Chinese 
-- *Master Yuexi’s Lectures on Mahāyāna Absolute Doctrine*: Visit [Ten Thousand Buddhas Monastery → Yuexi Collection → Lecture on Mahāyāna Absolute Doctrine (Part 1)](http://www.10kbuddhas.org/index.do)  Chinese 
+- *The Platform Sutra of the Sixth Patriarch* (Chinese CBETA Taishō Tripiṭaka Vol. 48, No. 2008, compiled by Zongbao): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/The-Platform-Sutra-of-the-Sixth-Patriarch.epub)  
+- *Faith in Mind* (Chinese CBETA Taishō Tripiṭaka Vol. 48, No. 2010): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/The-Faith-Inscription.epub)  
+- *Song of Realizing the Dao by Yongjia* (Chinese CBETA Taishō Tripiṭaka Vol. 48, No. 2014): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/Yongjia's-Song-of-Realizing-the-Dao.epub)  
+- *Essential Mind-Transmission Dharmas of Chan Master Duanji of Huangbo Mountain* (Chinese CBETA Taishō Tripiṭaka Vol. 48, No. 2012A): [Download EPUB](https://github.com/clayfu/Chan-books/raw/refs/heads/main/The%20Mind-Transmission-Dharmas-Essential-of-Chan-Master-Duanji-of-Huangbo-Mountain.epub)  
+- *Master Yuexi’s Lectures on Mahāyāna Absolute Doctrine*: Visit [Ten Thousand Buddhas Monastery → Yuexi Collection → Lecture on Mahāyāna Absolute Doctrine (Part 1)] Chinese (http://www.10kbuddhas.org/index.do)
 
 ---
 
